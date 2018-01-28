@@ -1,0 +1,1 @@
+# android_device_Vernee_Mix2_6gb
